@@ -1,1 +1,1 @@
-detilPembelian
+detilPembelian.
